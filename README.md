@@ -1,0 +1,1 @@
+# sougoushurufaforUbuntu18.04
